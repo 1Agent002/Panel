@@ -31,5 +31,8 @@
 - Live Chat
 - Socials
 
+**Security:**
+- ANTI-CRACK
+
 **MOON PROJECT**
 - https://discord.gg/RYACYMzVsr
