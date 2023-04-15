@@ -35,4 +35,4 @@
 - ANTI-CRACK
 
 **MOON PROJECT**
-- https://discord.gg/RYACYMzVsr
+- https://discord.gg/JkTpFxGAUM
